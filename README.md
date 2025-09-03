@@ -1,1 +1,0 @@
-# blue-star-appliance-repair-nyc
